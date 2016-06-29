@@ -1,1 +1,1 @@
-# Programowanie-Rownolegle-i-Rozproszone
+# Rozne
